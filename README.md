@@ -1,1 +1,0 @@
-# Gulgena.github.io
